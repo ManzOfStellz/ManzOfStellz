@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ManzOfStellz
+- 👀 I’m interested in gaming and coding
+- 🌱 I’m currently learning python
+- 💞️ I’m not looking to collaborate at the moment but am open to ideas/suggestions of what to do next
+- 📫 Contact me through discord (ManiacalPenguin#2711) or email (trucrushajrr@gmail.com)
+- 📫 Repl = @ManzOfStellz
